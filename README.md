@@ -1,3 +1,3 @@
 # Trishita Bhowmick Portfolio
 <br>
-https://trishita924.github.io/#contact - link to my website
+https://trishita924.github.io/#home- link to my website
