@@ -1,1 +1,0 @@
-# Trishita Bhowmick Portfolio
